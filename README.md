@@ -5,11 +5,11 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=meatc4ke&label=Profile%20views&color=0e75b6&style=flat" alt="meatc4ke" /> </p>
 
-- 🌱 Main languages: **C#**
+- 🌸 Main languages: **C#**
 
 - 📫 Discord Contact: **Alenski#1352**
 
-- ⚡ Forbidden Word: **Lemon**
+- ✨ Forbidden Word: **🍋 Lemon 🍋**
 
 <h3 align="left">Discord Server
 <p align="left">
