@@ -1,6 +1,6 @@
 ### Hi there 👋, Alena
 #### A Degenerate doing stuff
-![A Degenerate doing stuff](https://tenor.com/view/sanrio-clouds-kawaii-bunny-cinnamon-gif-20382010)
+![A Degenerate doing stuff](https://www.pinterest.com/pin/headers--21884748177431890/)
 
 I poop, eat and sleep
 
