@@ -7,7 +7,7 @@
 
 - 🌸 Main languages: **C#**
 
-- 📫 Discord Contact: **Aley#1352**
+- 📫 Discord Contact: **Aley#0001**
 
 - ✨ Forbidden Word: **🍋 Lemon 🍋**
 
