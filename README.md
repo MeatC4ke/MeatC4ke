@@ -1,6 +1,6 @@
 
 <h1 align="center">Yo issa me MeatCake</h1>
-<h3 align="center">You think i own a brain!? PFF. Im just a Degenerate doing stuff, oh and did i mention that i fart?</h3>
+<h3 align="center">You think i own a brain!? PFF. Im just a Degenerate doing stuff.</h3>
 
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=meatc4ke&label=Profile%20views&color=0e75b6&style=flat" alt="meatc4ke" /> </p>
